@@ -1,4 +1,4 @@
-## I HATE this i woud pay somene 80 robux t o do this
+## sorry too     cool      to do this
 
 <!--
 **ritokac/ritokac** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
