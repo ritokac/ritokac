@@ -1,7 +1,7 @@
 ## ‎ ‎ everyday‎ ‎ ‎ ‎ ‎ all ‎ day‎ ‎ ‎ ,‎ ‎ ‎ ‎ ‎ thinking ‎ ‎ ‎ 'bout ‎ ‎ ‎ ‎ you
 17:08[my oc naned ami] my name is ami and i kill people when tehy are sad
 
-‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎according to ‎ ‎SOME‎ ‎‎ ‎people im kinda evil and two faced ‎ ‎and stuff ‎ ‎‎ ‎dud e?! /saaaaarcasm
+‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ `really ‎ ‎‎ ‎love‎ ‎‎ ‎love‎ ‎‎ ‎‎ ‎love‎ ‎‎ ‎‎ ‎you`
 <!--
 **ritokac/ritokac** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
