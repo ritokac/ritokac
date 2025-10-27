@@ -7,7 +7,7 @@
 
 <p align="left"> image of the ami hour?
   
-<p align="center">starring..... remi..... mani friend ,.... ssl. noob.... ELLIOT.....
+<p align="center">starring..... remi..... mani friend ,.... ssl. noob.... ELLIOT (he's the pumpkin.....
 
 [ami's guide to communicating](https://retnry.co/amiguide)
   <!--
