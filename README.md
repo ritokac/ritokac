@@ -9,7 +9,7 @@
   
 <p align="center">starring..... remi..... mani ,.... misty .... ray ... anvi ... ems ... ELLIOT (ami's fat tissue.....
 
-[ami's guide to communicating](https://retnry.co/amiguide)
+[ami's guide to communicating](https://rentry.co/amiguide)
   <!--
 **ritokac/ritokac** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
