@@ -7,7 +7,7 @@
 
 <p align="left"> image of the ami hour?
   
-<p align="center">starring..... remi..... mani ,.... misty .... ray ... anvi ... ELLIOT (ami's fat tissue.....
+<p align="center">starring..... remi..... mani ,.... misty .... ray ... anvi ... ems ... ELLIOT (ami's fat tissue.....
 
 [ami's guide to communicating](https://retnry.co/amiguide)
   <!--
