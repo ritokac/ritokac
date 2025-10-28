@@ -3,11 +3,11 @@
 
 ‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎≽(•⩊ •マ≼‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎   `really ‎ ‎‎ ‎love‎ ‎‎ ‎love‎ ‎‎ ‎‎ ‎love‎ ‎‎ ‎‎ ‎you`
 
-‎‎ ‎‎ ‎‎‎‎ ‎‎‎‎ ‎‎‎‎ ‎‎‎‎ ‎‎‎‎ ‎‎‎‎ ‎‎‎‎ ‎‎‎‎ ‎‎‎‎ ‎‎‎‎ ‎‎‎‎ ‎‎‎‎ ‎‎‎‎ ‎‎‎‎ ‎‎‎‎ ‎‎‎‎ ‎‎‎‎ ‎‎‎‎ ‎‎‎‎ ‎‎‎‎ ‎‎‎‎ ‎‎‎‎ ‎‎‎‎ ‎‎‎‎ ‎‎‎‎ ‎‎‎‎ ‎‎‎‎‎‎ ‎‎‎‎ ‎‎‎‎ ‎‎‎‎ ‎‎‎ ‎‎‎‎ ‎‎‎‎ ‎‎‎‎ ‎‎<p align="center">![](https://files.catbox.moe/tgsyho.png) 
+‎‎ ‎‎ ‎‎‎‎ ‎‎‎‎ ‎‎‎‎ ‎‎‎‎ ‎‎‎‎ ‎‎‎‎ ‎‎‎‎ ‎‎‎‎ ‎‎‎‎ ‎‎‎‎ ‎‎‎‎ ‎‎‎‎ ‎‎‎‎ ‎‎‎‎ ‎‎‎‎ ‎‎‎‎ ‎‎‎‎ ‎‎‎‎ ‎‎‎‎ ‎‎‎‎ ‎‎‎‎ ‎‎‎‎ ‎‎‎‎ ‎‎‎‎ ‎‎‎‎ ‎‎‎‎ ‎‎‎‎‎‎ ‎‎‎‎ ‎‎‎‎ ‎‎‎‎ ‎‎‎ ‎‎‎‎ ‎‎‎‎ ‎‎‎‎ ‎‎<p align="center">![](https://files.catbox.moe/5uctjf.png) 
 
 <p align="left"> image of the ami hour?
   
-<p align="center">starring..... remi..... mani friend ,.... ssl. noob.... ELLIOT (he's the pumpkin.....
+<p align="center">starring..... remi..... mani ,.... misty .... ray ... anvi ... ELLIOT (ami's fat tissue.....
 
 [ami's guide to communicating](https://retnry.co/amiguide)
   <!--
