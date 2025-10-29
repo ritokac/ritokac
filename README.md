@@ -3,11 +3,11 @@
 
 ‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎≽(•⩊ •マ≼‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎   `really ‎ ‎‎ ‎love‎ ‎‎ ‎love‎ ‎‎ ‎‎ ‎love‎ ‎‎ ‎‎ ‎you`
 
-‎‎ ‎‎ ‎‎‎‎ ‎‎‎‎ ‎‎‎‎ ‎‎‎‎ ‎‎‎‎ ‎‎‎‎ ‎‎‎‎ ‎‎‎‎ ‎‎‎‎ ‎‎‎‎ ‎‎‎‎ ‎‎‎‎ ‎‎‎‎ ‎‎‎‎ ‎‎‎‎ ‎‎‎‎ ‎‎‎‎ ‎‎‎‎ ‎‎‎‎ ‎‎‎‎ ‎‎‎‎ ‎‎‎‎ ‎‎‎‎ ‎‎‎‎ ‎‎‎‎ ‎‎‎‎ ‎‎‎‎‎‎ ‎‎‎‎ ‎‎‎‎ ‎‎‎‎ ‎‎‎ ‎‎‎‎ ‎‎‎‎ ‎‎‎‎ ‎‎<p align="center">![](https://files.catbox.moe/5uctjf.png) 
+‎‎ ‎‎ ‎‎‎‎ ‎‎‎‎ ‎‎‎‎ ‎‎‎‎ ‎‎‎‎ ‎‎‎‎ ‎‎‎‎ ‎‎‎‎ ‎‎‎‎ ‎‎‎‎ ‎‎‎‎ ‎‎‎‎ ‎‎‎‎ ‎‎‎‎ ‎‎‎‎ ‎‎‎‎ ‎‎‎‎ ‎‎‎‎ ‎‎‎‎ ‎‎‎‎ ‎‎‎‎ ‎‎‎‎ ‎‎‎‎ ‎‎‎‎ ‎‎‎‎ ‎‎‎‎ ‎‎‎‎‎‎ ‎‎‎‎ ‎‎‎‎ ‎‎‎‎ ‎‎‎ ‎‎‎‎ ‎‎‎‎ ‎‎‎‎ ‎‎<p align="center">![](https://files.catbox.moe/ul6uop.png) 
 
 <p align="left"> image of the ami hour?
   
-<p align="center">starring..... remi..... mani ,.... misty .... ray ... anvi ... ems ... ELLIOT (ami's fat tissue.....
+<p align="center">starring..... mars @aquivosz ... an oc named mani....and mani's oc named ami ELLIOT (ami's fat tissue.....
 
 [ami's guide to communicating](https://rentry.co/amiguide)
   <!--
