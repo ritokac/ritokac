@@ -7,7 +7,7 @@
 
 <p align="left"> image of the ami hour?
   
-<p align="center">starring..... mars @aquivosz ... an oc named mani....and mani's oc named ami ELLIOT (ami's fat tissue.....
+<p align="center">starring..... mars @aquivosz ... an oc named mani....and mani's oc named ami
 
 [ami's guide to communicating](https://rentry.co/amiguide)
   <!--
