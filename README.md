@@ -1,4 +1,4 @@
-## ‎ ‎ everyday‎ ‎ ‎ ‎ ‎ all ‎ day‎ ‎ ‎ ,‎ ‎ ‎ ‎ ‎ thinking ‎ ‎ ‎ 'bout ‎ ‎ ‎ ‎ you
+## ‎ ‎ let's‎ ‎ ‎ ‎ ‎ escape ‎ the‎ ‎ ‎ world ‎ ‎ ‎ ‎ together ‎ ‎ ‎ 
 <p align="center">17:08[my oc naned ami] my name is ami and i kill people when tehy are sad
 
 ‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎≽(•⩊ •マ≼‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎   `really ‎ ‎‎ ‎love‎ ‎‎ ‎love‎ ‎‎ ‎‎ ‎love‎ ‎‎ ‎‎ ‎you`
