@@ -3,11 +3,11 @@
 
 ‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎≽(•⩊ •マ≼‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎   `really ‎ ‎‎ ‎love‎ ‎‎ ‎love‎ ‎‎ ‎‎ ‎love‎ ‎‎ ‎‎ ‎you`
 
-‎‎ ‎‎ ‎‎‎‎ ‎‎‎‎ ‎‎‎‎ ‎‎‎‎ ‎‎‎‎ ‎‎‎‎ ‎‎‎‎ ‎‎‎‎ ‎‎‎‎ ‎‎‎‎ ‎‎‎‎ ‎‎‎‎ ‎‎‎‎ ‎‎‎‎ ‎‎‎‎ ‎‎‎‎ ‎‎‎‎ ‎‎‎‎ ‎‎‎‎ ‎‎‎‎ ‎‎‎‎ ‎‎‎‎ ‎‎‎‎ ‎‎‎‎ ‎‎‎‎ ‎‎‎‎ ‎‎‎‎‎‎ ‎‎‎‎ ‎‎‎‎ ‎‎‎‎ ‎‎‎ ‎‎‎‎ ‎‎‎‎ ‎‎‎‎ ‎‎<p align="center">![](https://files.catbox.moe/4ma350.png) 
+‎‎ ‎‎ ‎‎‎‎ ‎‎‎‎ ‎‎‎‎ ‎‎‎‎ ‎‎‎‎ ‎‎‎‎ ‎‎‎‎ ‎‎‎‎ ‎‎‎‎ ‎‎‎‎ ‎‎‎‎ ‎‎‎‎ ‎‎‎‎ ‎‎‎‎ ‎‎‎‎ ‎‎‎‎ ‎‎‎‎ ‎‎‎‎ ‎‎‎‎ ‎‎‎‎ ‎‎‎‎ ‎‎‎‎ ‎‎‎‎ ‎‎‎‎ ‎‎‎‎ ‎‎‎‎ ‎‎‎‎‎‎ ‎‎‎‎ ‎‎‎‎ ‎‎‎‎ ‎‎‎ ‎‎‎‎ ‎‎‎‎ ‎‎‎‎ ‎‎<p align="center">![](https://files.catbox.moe/mfhh4f.png) 
 
 <p align="left"> image of the ami hour?
   
-<p align="center">starring..... xin @yeorido ... yan @meriuka ... luke .... mars ... and mani's oc named ami
+<p align="center">starring..... my glorious king robert robertson ohmyogoshhhh
 
 [ami's guide to communicating](https://rentry.co/amiguide)
   <!--
