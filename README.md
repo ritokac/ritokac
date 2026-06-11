@@ -2,6 +2,8 @@
 <p align="center">17:08[my oc naned ami] my name is ami and i kill people when tehy are sad
 
 ‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎≽(•⩊ •マ≼‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎   `really ‎ ‎‎ ‎love‎ ‎‎ ‎love‎ ‎‎ ‎‎ ‎love‎ ‎‎ ‎‎ ‎you`
+
+<p align="center"><img src="https://files.catbox.moe/yo6s7z.png")>
   <!--
 **ritokac/ritokac** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
