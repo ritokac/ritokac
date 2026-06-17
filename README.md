@@ -1,7 +1,7 @@
 ## ‎ ‎ let's‎ ‎ ‎ ‎ ‎ escape ‎ the‎ ‎ ‎ world ‎ ‎ ‎ ‎ together ‎ ‎ ‎ 
 <p align="center">17:08[my oc naned ami] my name is ami and i kill people when tehy are sad
 
-‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎≽(•⩊ •マ≼‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎   `really ‎ ‎‎ ‎love‎ ‎‎ ‎love‎ ‎‎ ‎‎ ‎love‎ ‎‎ ‎‎ ‎you` victor!
+‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎≽(•⩊ •マ≼‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎   `really ‎ ‎‎ ‎love‎ ‎‎ ‎love‎ ‎‎ ‎‎ ‎love‎ ‎‎ ‎‎ ‎you   ,`     victor!
 
 <p align="center"><img src="https://files.catbox.moe/yo6s7z.png")>
   <!--
